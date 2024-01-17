@@ -4,7 +4,7 @@
   <p align="center">
     <a href="https://chat.whatsapp.com/IpDbNkTpz1l520HHFuS7B7">
       <img alt="Support" height="300"
-        src="https://telegra.ph/file/d56271ce89ab876ba00b8.jpg">
+        src="https://telegra.ph/file/bb7112b549abe376629e0.jpg">
     </a>
   </p>
   <h1 align="center">𝐌𝐎𝐍𝐒𝐓𝐄𝐑-𝐌𝐃 𝐌𝐔𝐋𝐓𝐈 𝐃𝐄𝐕𝐈𝐂𝐄 𝐁𝐎𝐓</h1>
